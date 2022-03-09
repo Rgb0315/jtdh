@@ -29,3 +29,28 @@
 | 海角社区                                            |       [apk](https://hj3a7.com/down/20211027173050.apk)       |                           -                           |                    [①](https://hjf9e.com)                    |
 | 村花论坛(cunhua.cc)                                 |                              -                               |                           -                           | [①](https://www.xingba.pw) &  [②](https://www.cunhua.sbs//)  |
 | 比思论坛                                            |                              -                               |                           -                           |           [caregirl](http://caregirl.net/302.html)           |
+
+
+# BT磁力导航大全
+
+
+
+|                        介绍                         |                           最新地址                           |
+| :-------------------------------------------------: | :----------------------------------------------------------: |
+|                 资源全、综合最强！                  |                 [BTSOW](https://btsow.com/)                  |
+|                        老牌                         |       [Torrent Kitty](https://torrentkittyurl.com/tk/)       |
+|                     国外资源多                      | [东京图书馆①](https://www.tokyotosho.info/)   [②](http://tokyotosho.se/)   [③](https://tokyo-tosho.net/) |
+|                   国语资源图种磁                    | [u3c3](https://u3c3.cc/) [bt-btt](https://www.ebay.com/usr/bt-btt) |
+|                                                     |                                                              |
+|                        备用                         | [种子帝发布页](https://www.zhongzidizhi.com/)   [①](https://m.zhongziso61.xyz/)   [②](https://m.zhongziso19.xyz/) |
+|                        备用                         |                [磁力狗](http://a.202089.xyz/)                |
+|                                                     |                                                              |
+|                     欧美大厂18+                     | [Rarbg18+](https://rarbgdata.org/torrents.php?category=2;4)  |
+|                      影视生肉                       |               [Rarbg](https://rarbgdata.org/)                |
+|                      影视生肉                       |          [torrentgalaxy](https://torrentgalaxy.to/)          |
+|                                                     |                                                              |
+|                                                     |                                                              |
+|                  著名ACG-bt下载站                   |            （已被墙）[nyaa.si](https://nyaa.si/)             |
+|                   国语资源图种磁                    |        （已被墙）[Sukebei](https://sukebei.nyaa.si/)         |
+|                                                     |                                                              |
+| [91聚合平台app_成人版抖音](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |

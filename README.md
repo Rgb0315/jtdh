@@ -65,7 +65,7 @@
 |                  著名ACG-bt下载站                   |           [nyaa.si](https://nyaa.si/) （科学）            |
 |                   国语资源图种磁                    |        [Sukebei](https://sukebei.nyaa.si/)  （科学）       |
 |                                                     |                                                              |
-| [探花视频](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |
+| [探花视频一网打尽](https://v.hallo365.top/) |          [海量诱惑短视频](https://v.hallo365.top/)           |
 |             [国产大厂](https://v.hallo365.top/)              |           [门事件](https://v.hallo365.top/)           |        
 |             [软嫩萝莉](https://v.hallo365.top/)              |       [真实家庭L伦](https://v.hallo365.top/)       |  
 

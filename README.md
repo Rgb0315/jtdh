@@ -102,8 +102,7 @@
 |             [成人动漫](https://github.com/jtdh/app)              |           [AV解说](https://github.com/jtdh/app)           |             [经典三级](https://github.com/jtdh/app)              |
 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-![](https://user-images.githubusercontent.com/99425739/203990932-95be3f63-e1ce-4e82-9f57-6d6ad5228c12.png)
+
 
 
 > [`汇集导航 - 备用`](https://jintou.gitbook.io) https://jintou.gitbook.io

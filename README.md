@@ -17,11 +17,11 @@
 | 名称                                               |                          客户端exe                           |                   回家邮箱                   |                        最新地址发布页                        |
 | -------------------------------------------------- | :----------------------------------------------------------: | :------------------------------------------: | :----------------------------------------------------------: |
 | AvCar成人论坛_老司机汇集地                                  |               **18+必选飙车地！**                |      情趣圈子人气爆棚                  |       ⭐⭐⭐⭐⭐        |
-| [进入老司机汇集地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |                [老司机交流飙车区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)                |   [老司机兴趣圈子区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)   |     [推特福利姬](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)     |
-| [VR高清大社区圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)                                             |             [夫妻交流讨论圈（绿奴多）](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)             |     [伪娘交流讨论圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)     | [老司机兴趣圈子区！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |
-| [无码/有码/中字高清](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)                                          |               [在线观看区（共三区）](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)               | [恋物癖/SM/变装变性TS圈](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |    [女优百科大全](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)    |
-| [ACG动漫二次元资源交流圈！](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)                                   | [真实家庭乱论视图交流地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)→ |      （母子/父女/姐弟/丈母娘）        |        [呦美萝莉](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-[进入老司机汇集地](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) 
+| [进入老司机汇集地](https://github.com/jtdh/app) |                [老司机交流飙车区！](https://github.com/jtdh/app)                |   [老司机兴趣圈子区！](https://github.com/jtdh/app)   |     [推特福利姬](https://github.com/jtdh/app)     |
+| [VR高清大社区圈](https://github.com/jtdh/app)                                             |             [夫妻交流讨论圈（绿奴多）](https://github.com/jtdh/app)             |     [伪娘交流讨论圈](https://github.com/jtdh/app)     | [老司机兴趣圈子区！](https://github.com/jtdh/app) |
+| [无码/有码/中字高清](https://github.com/jtdh/app)                                          |               [在线观看区（共三区）](https://github.com/jtdh/app)               | [恋物癖/SM/变装变性TS圈](https://github.com/jtdh/app) |    [女优百科大全](https://github.com/jtdh/app)    |
+| [ACG动漫二次元资源交流圈！](https://github.com/jtdh/app)                                   | [真实家庭乱论视图交流地](https://github.com/jtdh/app)→ |      （母子/父女/姐弟/丈母娘）        |        [呦美萝莉](https://github.com/jtdh/app)              |
+[进入老司机汇集地](https://github.com/jtdh/app) 
 |                                                    |                                                              |                                              |                                                              |
 |                                                    |                                                              |                                              |                                                              |
 |                                                    |                                                              |                                              |                                                              |
@@ -35,14 +35,14 @@
 | XIAAV论坛                                          |                              -                               |              xiaavdz@gmail.com               |               [xavlt.com](https://xavlt.com/)                |
 | x1080x.com                                         |                              -                               |                      -                       |               [c996.me](https://www.c996.me/)                |
 | 第一会所(sis001.com)                               | [①](https://github.com/jtdh/luntan/files/8090016/sis001.zip) &  [②](https://www.mediafire.com/file/0fxrkeqr34tpd2q/sis001.zip/file) |        geturl001@gmail.com  [look](https://gre.sislook.com/)               |[①](http://104.164.59.117)[②](http://104.164.59.118) [③](http://104.164.59.119)[④](http://104.164.59.120)[⑤](http://104.164.59.121)  [⑥](http://104.164.59.122)[⑦](http://104.164.59.123)[⑧](http://104.164.59.124/)[⑨](http://104.164.59.125/)[⑩](http://104.164.59.126/)                |
-| [91聚合平台app成人版抖音](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |          [海量诱惑短视频](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)           |     [软嫩萝莉](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)      |         [最新国产大厂制片](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)          |
-| [91认证-楼凤兼职](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)         |            [脱衣直播区](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)             | [全国认证楼凤&外围](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |             [空投女友](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| [18+动漫天堂](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)             |             [认证女神](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |  [91网友交流热论](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)   |             [同城交流](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| [世界AV聚合平台](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)          |             [成人动漫](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |      [AV解说](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)       |             [经典三级](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| [魅惑御姐](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)                |             [小编严选](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |      [门事件](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)       |             [情趣综艺](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| ⭐⭐⭐⭐⭐                                              |             [优质中字](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |  [真实家庭Luan伦](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)   |             [激情小说](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| [全国本地楼凤聚合平台](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)    |             [洗浴按摩](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |     [同城约会](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)      |             [同城小姐](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-| [91聚合平台app成人版抖音](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |             [外围模特](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |     [高端伴游](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)      |             [情人包养](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
+| [91聚合平台app成人版抖音](https://github.com/jtdh/app) |          [海量诱惑短视频](https://github.com/jtdh/app)           |     [软嫩萝莉](https://github.com/jtdh/app)      |         [最新国产大厂制片](https://github.com/jtdh/app)          |
+| [91认证-楼凤兼职](https://github.com/jtdh/app)         |            [脱衣直播区](https://github.com/jtdh/app)             | [全国认证楼凤&外围](https://github.com/jtdh/app) |             [空投女友](https://github.com/jtdh/app)              |
+| [18+动漫天堂](https://github.com/jtdh/app)             |             [认证女神](https://github.com/jtdh/app)              |  [91网友交流热论](https://github.com/jtdh/app)   |             [同城交流](https://github.com/jtdh/app)              |
+| [世界AV聚合平台](https://github.com/jtdh/app)          |             [成人动漫](https://github.com/jtdh/app)              |      [AV解说](https://github.com/jtdh/app)       |             [经典三级](https://github.com/jtdh/app)              |
+| [魅惑御姐](https://github.com/jtdh/app)                |             [小编严选](https://github.com/jtdh/app)              |      [门事件](https://github.com/jtdh/app)       |             [情趣综艺](https://github.com/jtdh/app)              |
+| ⭐⭐⭐⭐⭐                                              |             [优质中字](https://github.com/jtdh/app)              |  [真实家庭Luan伦](https://github.com/jtdh/app)   |             [激情小说](https://github.com/jtdh/app)              |
+| [全国本地楼凤聚合平台](https://github.com/jtdh/app)    |             [洗浴按摩](https://github.com/jtdh/app)              |     [同城约会](https://github.com/jtdh/app)      |             [同城小姐](https://github.com/jtdh/app)              |
+| [91聚合平台app成人版抖音](https://github.com/jtdh/app) |             [外围模特](https://github.com/jtdh/app)              |     [高端伴游](https://github.com/jtdh/app)      |             [情人包养](https://github.com/jtdh/app)              |
 | JKF 捷克論壇                                       |                              -                               |                      -                       |           [jkforum.net](https://www.jkforum.net/)            |
 | AV狼(avlang.com)                                   | [①](https://github.com/jtdh/luntan/files/8090014/avlang.zip) &  [②](https://www.mediafire.com/file/rfvh7xpelwby9af/avlang.zip/file) |                      -                       |       [①](http://www.avlang.xyz/dizhi.php) 答：avlang        |
 | 比思论坛                                           |                              -                               |                      -                       |           [caregirl](http://caregirl.net/302.html)           |
@@ -71,7 +71,7 @@
 |                  著名ACG-bt下载站                   |           [nyaa.si](https://nyaa.si/) （科学）            |
 |                   国语资源图种磁                    |        [Sukebei](https://sukebei.nyaa.si/)  （科学）       |
 |                                                     |                                                              |
-| [探花视频一网打尽](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde) |          [海量诱惑短视频](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)           |
+| [探花视频一网打尽](https://github.com/jtdh/app) |          [海量诱惑短视频](https://github.com/jtdh/app)           |
 
 
 
@@ -96,10 +96,10 @@
 | 论文，期刊，文库，学术下载，文献免费下载                     | [**库问搜索**](http://www.koovin.com/)    |
 |                     |    |
 |                     |    |
-|          [海量诱惑短视频](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)           |          [优质中字](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)          |         [最新国产大厂制片](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)          |
-|            [脱衣直播区](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)             |     [全国认证楼凤&外围](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)      |             [空投女友](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-|             [认证女神](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |       [91网友交流热论](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)       |             [同城交流](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
-|             [成人动漫](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |           [AV解说](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)           |             [经典三级](https://yfriuxdff68nhtghjd8grtgr.linepr.cyou/fdhujde)              |
+|          [海量诱惑短视频](https://github.com/jtdh/app)           |          [优质中字](https://github.com/jtdh/app)          |         [最新国产大厂制片](https://github.com/jtdh/app)          |
+|            [脱衣直播区](https://github.com/jtdh/app)             |     [全国认证楼凤&外围](https://github.com/jtdh/app)      |             [空投女友](https://github.com/jtdh/app)              |
+|             [认证女神](https://github.com/jtdh/app)              |       [91网友交流热论](https://github.com/jtdh/app)       |             [同城交流](https://github.com/jtdh/app)              |
+|             [成人动漫](https://github.com/jtdh/app)              |           [AV解说](https://github.com/jtdh/app)           |             [经典三级](https://github.com/jtdh/app)              |
 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;

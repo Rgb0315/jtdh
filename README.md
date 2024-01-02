@@ -6,7 +6,7 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 >  - bt磁力导航在于精而不在于多，下方站点可覆盖全类型资源。
 >  - 再次失去它们之前，请提前收藏本页，此列表会更新。 
->  - 备用 https://jintou.gitbook.io
+
 
 
 |                        介绍                         |                           最新地址                           |
@@ -223,6 +223,7 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 - <a href="https://www.agefans.cc/">AGE动漫 【推荐】</a>AGE动漫专注于整理高质量动漫资源，提供百度网盘下载。
 
+- [备用](https://jintou.gitbook.io) 
 	​	
 ### 在线漫画
 
@@ -762,3 +763,8 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 	
 
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+[nr](https://github.com/follow666/nr)。[Windows](https://github.com/jtdh/Windows).[91](https://github.com/follow666/91app_download).[haijiao](https://github.com/follow666/hai_jiao_she_qu). [Microsoft365](https://github.com/jtdh/Microsoft365)。[luoli](https://github.com/follow666/luoli).[hanxiucao](https://github.com/follow666/hanxiucao).[android](https://github.com/jtdh/android).[Disney](https://github.com/jtdh/Disney).[bo](https://github.com/follow666/zhi_bo_app)。[tiankongti](https://github.com/follow666/tian_kong_ti).[dark.web](https://github.com/follow666/dark_web). [a](https://github.com/appmark123/actress/tree/main/md).[yi](https://github.com/follow666/yi).[n](https://github.com/jtdh/new)。[h](https://hlxijue.com/).[luntan](https://github.com/follow666/luntan).[l](https://github.com/jtdh/l).[m](https://github.com/appmark123/actress/tree/main/main).[youtube](https://github.com/jtdh/youtube).[nt](https://github.com/follow666/nt)。[macos](https://github.com/jtdh/macos).[Netflix](https://github.com/jtdh/Netflix).[Download.tools](https://github.com/jtdh/Download-tools).[ZLibrary](https://github.com/jtdh/Z-Library).[bi](https://github.com/follow666/bilibili)。[javlibrary](https://github.com/follow666/javlib.com_javlibrary.com).[wangpan](https://github.com/jtdh/wangpan).[Spotify](https://github.com/jtdh/Spotify).[sms](https://github.com/jtdh/sms).[List](https://github.com/jtdh/Movie-Recommendation-List/wiki)。[vps](https://github.com/jtdh/vps).[wiki](https://github.com/jtdh/vps/wiki).[Tutorials](https://github.com/jtdh/Online-Web-Tutorials/wiki).[jintou]( https://jintou.gitbook.io).[jtdh](https://github.com/jtdh/jtdh)。[loufeng](https://github.com/appmark123/loufeng)。[dongman](https://github.com/jtdh/dongman).[ll](https://github.com/jtdh/ll).[AI](https://github.com/jtdh/AI).[cili](https://github.com/jtdh/cili).[vpn]( https://github.com/follow666/vpn).[ai.issues](https://github.com/jtdh/AI/issues/)

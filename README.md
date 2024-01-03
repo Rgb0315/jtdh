@@ -38,9 +38,23 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 ## 热门导航
 
-| [福利姬](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s) |            [脱衣直播区](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)             |
-| [精品探花](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s) |             [软嫩萝莉](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)              |
 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+| 实用工具                      |                                
+|---------------------------|
+   |                                      |
+| [[ →最新中字作品，精彩探花更新在app← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)]
+   |                                      |
+| [[ →白嫖_科学实用工具VP加速器N← ](https://github.com/follow666/tian_kong_ti/blob/main/README.md)] | 
+   |                                      |
+| [[ →海角伦友家庭禁忌作品← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/3jUsD4NDDUtcFBL86ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd5Fbb9hfpsAQVzpBwqCgBAXP5AkfLVyS)]      | 
+   |                                      |
+| [[ →小红帽美女大秀← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/2U3UxjEXDNCF7ReDADu3MNunpLjhC7tQJuAZM4ky8Z9nMU68RMA4jBDgwNhdW7rMA8DEAar8fTpuZS4hRTv6pDv6)]            |
+   |                                      |
+| [[ →暗网← ](https://github.com/follow666/dark_web/blob/main/README.md)]                   |
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
 ***

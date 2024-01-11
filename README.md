@@ -1,8 +1,8 @@
-bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
+bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航、AI导航
 
 
 
-## [磁力导航_bt导航_磁力站大全](https://github.com/jtdh/cili)
+## [磁力导航_bt导航_磁力站大全](https://github.com/jtdh/cili/blob/main/README.md)
 
 >  - bt磁力导航在于精而不在于多，下方站点可覆盖全类型资源。
 >  - 再次失去它们之前，请提前收藏本页，此列表会更新。 
@@ -39,26 +39,26 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 ## 热门导航
 
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;
 
-| 实用工具                      |                                
+| **实用工具**                  |
 |---------------------------|
-   |                                      |
-| [[ →最新中字作品，精彩探花更新在app← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)]
-   |                                      |
-| [[ →白嫖_科学实用工具VP加速器N← ](https://github.com/follow666/tian_kong_ti/blob/main/README.md)] | 
-   |                                      |
-| [[ →海角伦友家庭禁忌作品← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/3jUsD4NDDUtcFBL86ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd5Fbb9hfpsAQVzpBwqCgBAXP5AkfLVyS)]      | 
-   |                                      |
-| [[ →小红帽美女大秀← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/2U3UxjEXDNCF7ReDADu3MNunpLjhC7tQJuAZM4ky8Z9nMU68RMA4jBDgwNhdW7rMA8DEAar8fTpuZS4hRTv6pDv6)]            |
-   |                                      |
-| [[ →暗网← ](https://github.com/follow666/dark_web/blob/main/README.md)]                   |
+|                                      |
+| **[[ → 最新中字作品、探花女神系列，更新在app ← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/1FfBB4WD5CFfgn5229WfoneMBKWAK7hwcQwP33GQ5c4pVjAM7EaYBRw4FJ8JMcKRAJFtCDKfrj9yzgYAHr5C4E3s)]** |
+|                                      |
+| **[[ → 白嫖_每天1GB+流量__科学实用工具VP加速器N ← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/VjUsD9NDDUtcFBL86ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd5Fbb9hfpsA9VzpBwqCgBAXP5AkfLVPN)]** |
+|                                      |
+| **[[ → 海_角__家_庭_禁_忌_作_品 ← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/3jUsD4NDDUtcFBL86ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd5Fbb9hfpsAQVzpBwqCgBAXP5AkfLVyS)]** |
+|                                      |
+| **[[ → 小红帽，免费看美女真实大秀  ← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/2U3UxjEXDNCF7ReDADu3MNunpLjhC7tQJuAZM4ky8Z9nMU68RMA4jBDgwNhdW7rMA8DEAar8fTpuZS4hRTv6pDv6)]** |
+|                                      |
+| **[[ → 暗网禁区，禁忌资源汇总 ← ](https://8dafsdgwthyhgnfggdhdfgdfsghg.chagbt-ai.top/ajUsD3NDDUtcFBL89ZwEatjvFYQhLUGyp7WzXxxzHTSNfyoCt4SJ7bxGd6Fbb9hfpsAQVzpBwqCgBAXP5AkfLuyyt)]** |
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;
 
 
 ***
-## [网盘搜索导航_云盘导航_阿里云盘_夸克云盘_百度云盘_TG（Telegram）资源搜索引擎大全](https://github.com/jtdh/wangpan)
+## [网盘搜索导航_云盘导航_阿里云盘_夸克云盘_百度云盘_TG（Telegram）资源搜索引擎大全](https://github.com/jtdh/wangpan/blob/main/README.md)
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 | 介绍                                                         | 访问                                      |
@@ -107,7 +107,7 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-## [动漫二次元ACG导航](https://github.com/jtdh/dongman)
+## [动漫二次元ACG导航](https://github.com/jtdh/dongman/blob/main/README.md)
 
 
 
@@ -468,7 +468,6 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 
 
-
 - <a href="https://www.acg23.com/">acg23 </a>综合资源种子下载
 
 - <a href="https://www.tokyotosho.info/">東京図書館 </a>国外bt下载站
@@ -584,7 +583,7 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 ### Telegram频道
 
-
+如无法连接到网络，请使用[实用工具推荐](https://github.com/jtdh/vpn-service/blob/main/README.md)翻越，即可访问Telegram频道
 
 
 - <a href="https://t.me/SomeACG">NewSomeACG </a>每日少女壁纸推送
@@ -761,6 +760,36 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 - <a href="https://www.dlsite.com/index.html">Dlsite </a>日本/台湾/中国知名ACG在线购物平台
 	
+&nbsp;
+
+## [AI导航，访问完整版。](https://github.com/jtdh/AI/blob/main/README.md)
+&nbsp;
+
+
+- [ChatGPT — 地表最强AI聊天机器人](https://chat.openai.com/)
+
+- [Anthropic Claude  — Anthropic发布的与ChatGPT竞争的聊天机器人](https://www.anthropic.com/)
+
+- [文心一言 — 百度全新知识增强大语言模型！国产聊天机器人](https://yiyan.baidu.com/)
+
+-  [OpenCat — 在苹果手表上用ChatGPT](https://opencat.app/)
+
+- [Perplexity — 智能总结并展示信息源](https://www.perplexity.ai/)
+
+- [Bing Chat— 微软以ChatGPT/GPT-4搭建的全新AI搜索引擎](https://www.bing.com/chat)
+
+-  [Auto-GPT — 自主实现目标的AI模型，能够生成连续且连贯的文本](https://github.com/Significant-Gravitas/Auto-GPT)
+
+-  [AgentGPT — 革命性的AI平台！具有UI界面的Auto-GPT](https://agentgpt.reworkd.ai/)
+-  [ColossalChat — 免费开源的AI聊天机器人](https://chat.colossalai.org/)
+
+-  [通义千问 — 阿里巴巴的AI对话机器人](https://tongyi.aliyun.com/)
+
+-  [YOU — 人工智能搜索聊天机器人](https://you.com/)
+
+- [Google Bard — 媲美ChatGPT，最新的谷歌AI对话模型](https://bard.google.com/)
+
+- [讯飞星火 — 科大AI对话机器人](https://xinghuo.xfyun.cn/)
 
 
 
@@ -769,7 +798,5 @@ bt磁力导航、云盘资源搜索引擎导航、动漫二次元ACG导航
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
-[nr](https://github.com/follow666/nr/blob/main/README.md).[Windows](https://github.com/jtdh/Windows/blob/main/README.md).[91](https://github.com/follow666/91app_download/blob/main/README.md).[haijiao](https://github.com/follow666/hai_jiao_she_qu/blob/main/README.md). [Microsoft365](https://github.com/jtdh/Microsoft365/blob/main/README.md).[luoli](https://github.com/follow666/luoli/blob/main/README.md).[hanxiucao](https://github.com/follow666/hanxiucao/blob/main/README.md).[android](https://github.com/jtdh/android/blob/main/README.md).[Disney](https://github.com/jtdh/Disney/blob/main/README.md).[bo](https://github.com/follow666/zhi_bo_app/blob/main/README.md).[tiankongti](https://github.com/follow666/tian_kong_ti/blob/main/README.md).[dark.web](https://github.com/follow666/dark_web/blob/main/README.md). [a](https://github.com/appmark123/actress/blob/main/README.md).[yi](https://github.com/follow666/yi/blob/main/README.md).[n](https://github.com/jtdh/new/blob/main/README.md).[h](https://hlxijue.com/).[luntan](https://github.com/follow666/luntan/blob/main/README.md).[l](https://github.com/jtdh/l/blob/main/README.md).[m](https://github.com/appmark123/actress/tree/main/main).[youtube](https://github.com/jtdh/youtube/blob/main/README.md).[nt](https://github.com/follow666/nt/blob/main/README.md).[macos](https://github.com/jtdh/macos/blob/main/README.md).[Netflix](https://github.com/jtdh/Netflix/blob/main/README.md).[Download.tools](https://github.com/jtdh/Download-tools/blob/main/README.md).[ZLibrary](https://github.com/jtdh/Z-Library/blob/main/README.md).[m](https://github.com/appmark123/actress/tree/main/md)[bi](https://github.com/follow666/bilibili/blob/main/README.md).[javlibrary](https://github.com/follow666/javlib.com_javlibrary.com/blob/main/README.md).[wangpan](https://github.com/jtdh/wangpan/blob/main/README.md).[Spotify](https://github.com/jtdh/Spotify/blob/main/README.md).[sms](https://github.com/jtdh/sms/blob/main/README.md).[List](https://github.com/jtdh/Movie-Recommendation-List/wiki).[vps](https://github.com/jtdh/vps/blob/main/README.md).[wiki](https://github.com/jtdh/vps/wiki).[Tutorials](https://github.com/jtdh/Online-Web-Tutorials/wiki).[jintou]( https://jintou.gitbook.io).[jtdh](https://github.com/jtdh/jtdh/blob/main/README.md).[loufeng](https://github.com/follow666/loufeng/blob/main/README.md).[dongman](https://github.com/jtdh/dongman/blob/main/README.md).[ll](https://github.com/jtdh/ll/blob/main/README.md).[AI](https://github.com/jtdh/AI/blob/main/README.md).[cili](https://github.com/jtdh/cili/blob/main/README.md).[vpn]( https://github.com/follow666/vpn/blob/main/README.md).[ai.issues](https://github.com/jtdh/AI/issues/)
-
-
+[Windows](https://github.com/jtdh/Windows/blob/main/README.md).[android](https://github.com/jtdh/android/blob/main/README.md).[Disney](https://github.com/jtdh/Disney/blob/main/README.md).[n](https://github.com/jtdh/new/blob/main/README.md).[h](https://hlxijue.com/).[l](https://github.com/jtdh/l/blob/main/README.md).[youtube](https://github.com/jtdh/youtube/blob/main/README.md).[macos](https://github.com/jtdh/macos/blob/main/README.md)[abc](https://a-i-1.gitbook.io/abc/)[Download.tools](https://github.com/jtdh/Download-tools/blob/main/README.md).[ZLibrary](https://github.com/jtdh/Z-Library/blob/main/README.md).[wangpan](https://github.com/jtdh/wangpan/blob/main/README.md).[sms](https://github.com/jtdh/sms/blob/main/README.md).[List](https://github.com/jtdh/Movie-Recommendation-List/wiki)[d](https://github.com/jtdh/dark-web/blob/main/README.md).[Tutorials](https://github.com/jtdh/Online-Web-Tutorials/wiki).[jtdh](https://github.com/jtdh/jtdh/blob/main/README.md).[dongman](https://github.com/jtdh/dongman/blob/main/README.md).[ll](https://github.com/jtdh/ll/blob/main/README.md).[AI](https://github.com/jtdh/AI/blob/main/README.md).[c](https://github.com/jtdh/cili/blob/main/README.md).[ai](https://github.com/jtdh/AI/issues/).[L](https://github.com/jtdh/live-show/blob/main/README.md).[v](https://github.com/jtdh/vpn-service/issues/).[vpn](https://github.com/jtdh/vpn-service/blob/main/README.md)
 
